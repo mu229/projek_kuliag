@@ -1,0 +1,1 @@
+sedang mengerjakan projek mobile 
